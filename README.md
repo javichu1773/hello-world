@@ -1,1 +1,1 @@
-# hello-world
+# hello-world  README.md   voy a tratar de descargarme un boot para tradear cryptos a ver si consigo ganarle algo de dinero al mercado sin estar todo el dia loco, a ver si voy aprendiendo algo de trading mientras tanto. soy un tipo de 45 años que invierto en Cryptos desde noviembre de 2017 y estoy emocionado con las posibilidades que se abren ante nuestros ojos, saludos a todos los amantes de las altcoins
